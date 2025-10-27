@@ -1,4 +1,4 @@
-Columbia UNiversity - Aerospace Human Factors Final Project
+Columbia University - Aerospace Human Factors Final Project
 
 Albert Go and Samantha Botros
 
